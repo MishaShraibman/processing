@@ -1,1 +1,1 @@
-# EPILEPSY WARNING
+# stuped thing of stuped things
