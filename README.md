@@ -1,1 +1,1 @@
-# stuped thing of stuped things
+хуйня
